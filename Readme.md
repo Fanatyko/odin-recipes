@@ -1,2 +1,3 @@
-basic skills, basic things all the basic u can possibly learn 
 
+
+![](imagesss)lasagana.jpeg)
